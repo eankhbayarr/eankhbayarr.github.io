@@ -1,1 +1,0 @@
-# eankhbayarr.github.io
